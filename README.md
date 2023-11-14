@@ -2,5 +2,5 @@
 
 - eu gosto de rock
 - e de guns n roses
-- e de bts
-- 
+- gosto de desenhar
+![](https://media.tenor.com/TYCN_RXD4gsAAAAM/guns-and-roses-skull.gif)
