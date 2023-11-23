@@ -1,6 +1,6 @@
 ***hello everyone***
 
-- eu gosto de rock
+- eu gosto de coca cola
 - e de guns n roses
 - gosto de desenhar
 
